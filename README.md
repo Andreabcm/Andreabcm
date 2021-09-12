@@ -5,7 +5,7 @@ Llevando a cabo, las metodologías ágiles: Kanban y Scrum y, las buenas prácti
 
 
 📫  Contacto:
-- andreabcm16@gamil.com
+- andreacevallosmendoza@gamil.com
 - [Linkedin](https://linkedin.com/in/-andrea-c-m)
  
  
